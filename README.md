@@ -15,12 +15,3 @@ As a dedicated and self-driven **Project Manager and QA Freelancer**, I bring ov
 
 ## 🚀 Let's Connect!
 If you're looking for someone who can ensure your application is **FREE FROM BUGS 🐛🐛🐛, on time ⏳**, then HIRE ME! 🚀🚀🚀
-
-### Reach me on:
-- [Upwork](https://www.upwork.com/freelancers/~018d4c8af631a0ef2d?mp_source=share)
-- [LinkedIn](https://www.linkedin.com/in/qashadabshaikh/)
-- [GitHub](https://github.com/testshadab)
-- [Email](mailto:shadabsha@gmail.com)
-
----
-🚀 *Let's collaborate and build something amazing together!* 🚀
